@@ -1,0 +1,1 @@
+you will need noodels,some vegetables,and masala which comes with it,water which is boiling.
